@@ -1,3 +1,0 @@
-# Oregon-State-HALE
-
-
